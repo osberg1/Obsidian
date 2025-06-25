@@ -22,7 +22,7 @@ tags:
 
 
 #### Questions 
-use \#card for anki
+use \#card and flashcard command for anki
 
 #### Question 
 
