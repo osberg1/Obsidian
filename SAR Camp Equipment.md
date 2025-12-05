@@ -26,6 +26,8 @@ Garmin Inreach 350$
 katadyn water flter 100$
 Power Bank - 100$
 Pillow 50$
+Spork 15$
+plate - 15$
 **Equipment**
 
 - - Fire starter (matches, lighter and candle, or flint and knife  - waterproof matches and a lighter 20$
