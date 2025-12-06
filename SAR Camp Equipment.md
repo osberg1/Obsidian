@@ -10,7 +10,7 @@ tags:
     - Wool or pile mitts 
     - Waterproof breathable mitts or gloves MECHANIX 0.5MM 40$
     - Wool socks COUPLE PAIR 40$
-    - Wind and waterproof coat and pants patagonia torrentshell pants and iron forge fleece lined - 350$
+    - Wind and waterproof coat and pants patagonia torrentshell pants and iron forge fleece lined - 350$ or Triolet pants $500
     - Wool or pile coat
     - Some additional clothing for the subject
 wool baselayer - 250$
