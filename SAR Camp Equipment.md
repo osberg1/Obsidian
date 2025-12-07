@@ -4,13 +4,31 @@ tags:
 ---
 2025-06-22 19:49
 
+
+Order for Boxing day
+Mechanix Hi Vis Gloves
+Wool Socls
+Patagonia iron forge pants and maybe a fleece
+wool baselayer
+Boots
+paracord / ducttape
+katadyn filter bottle
+pot
+spork
+Fillo?
+fire starter system
+nalgene 1l
+fox40
+agawa boreal
+pocket knife
+
 # Summary
  
 - - Wool or pile toque
     - Wool or pile mitts 
     - Waterproof breathable mitts or gloves MECHANIX HI VIS 40$
     - Wool socks COUPLE PAIR 40$
-    - Wind and waterproof coat and pants patagonia torrentshell pants and iron forge fleece lined - 350$ or Triolet pants $500
+    - Wind and waterproof coat and pants iron forge fleece lined - 150$ 
     - Wool or pile coat
     - Some additional clothing for the subject
 wool baselayer - 250$
@@ -25,7 +43,7 @@ webbing and wire and paracord and ducttape 20$
 Garmin Inreach 350$
 katadyn water flter 100$
 Power Bank - 100$
-Pillow 50$
+Pillow NEMO FILLO 60$
 Spork 15$
 plate - 15$
 **Equipment**
