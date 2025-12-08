@@ -7,8 +7,10 @@ tags:
 
 Order for Boxing day
 Mechanix Hi Vis Gloves
-Wool Socls
+Wool Socks
 Patagonia iron forge pants and maybe a fleece
+Or goretex pants idk
+Gamma Hoody?
 wool baselayer
 Boots
 paracord / ducttape
@@ -21,6 +23,16 @@ nalgene 1l
 fox40
 agawa boreal
 pocket knife
+casio watch
+
+
+
+Beta for around town
+
+Gamma and torrentshell
+R1 Air
+Merino base
+fjallraven puffy
 
 # Summary
  
@@ -46,6 +58,7 @@ Power Bank - 100$
 Pillow NEMO FILLO 60$
 Spork 15$
 plate - 15$
+
 **Equipment**
 
 - - Fire starter (matches, lighter and candle, or flint and knife  - waterproof matches and a lighter 20$
