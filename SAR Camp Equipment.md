@@ -11,7 +11,7 @@ Wool Socks
 Patagonia iron forge pants and maybe a fleece
 Or goretex pants idk
 Gamma Hoody?
-wool baselayer
+wool baselayer mesh???????????
 Boots
 paracord / ducttape
 katadyn filter bottle
