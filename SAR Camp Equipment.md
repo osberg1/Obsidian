@@ -22,7 +22,7 @@ fire starter system
 nalgene 1l
 fox40
 agawa boreal
-pocket knife
+pocket knife civivi strom ridge or elementum fixed
 casio watch
 
 
