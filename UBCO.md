@@ -1,21 +1,8 @@
+2nd semester take land plants biol 210 class avg high af
 
-### Uni
+make sure engl waitlist goes through
 
-
-### Getting into Med
-
-
-### City 
-
-
-### Undergrad Program
-
-
-### Residence
-
-
-
-##### Distance from MJ
+![[Pasted image 20260720151930.png]]
 
 
 
