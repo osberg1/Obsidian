@@ -1,8 +1,6 @@
-2nd semester take land plants biol 210 class avg high af
+Move Engl 112 section to 101 section mon wed. ideally.
 
-make sure engl waitlist goes through
 
-![[Pasted image 20260720151930.png]]
 
 
 
