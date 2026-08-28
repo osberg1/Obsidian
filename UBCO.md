@@ -1,4 +1,8 @@
-Move Engl 112 section to 101 section mon wed. ideally.
+Move Engl 112 section to 101 section mon wed. ideally. 
+
+you are on waitlist
+
+
 
 
 
